@@ -1,5 +1,3 @@
-Hewo! My name is Olivia, but you may know me as Tuwi! I'm an Argentinian artist
-
 Here are my websites:
 
 [straw.page](https://turrinnno.straw.page/) _(my socials, commissions and some of my interests! Also you can draw me or text me something anonymously)_
