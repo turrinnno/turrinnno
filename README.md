@@ -10,4 +10,4 @@ From these websites you can learn more about me:
 
 [last.fm](https://last.fm/user/turrinnno) _(music history)_
 
-![](https://i.postimg.cc/VLMPgpRS/Screenshot-2026-07-17-030001.png)
+[![Screenshot-2026-07-17-030001.png](https://i.postimg.cc/VLMPgpRS/Screenshot-2026-07-17-030001.png)](https://postimg.cc/7fxRYBjD)
